@@ -7,4 +7,4 @@ This website is updated on my spare time.
 
 Hopefully my insghts could inspire you too.
 
-Contact: 1051484856@qq.com
+
